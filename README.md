@@ -15,9 +15,9 @@
 
 ## 🌐 Let's Connect  
 
-- 💼 LinkedIn: [Your LinkedIn Profile](#)  
-- 📧 Email: [your-email@example.com](mailto:your-email@example.com)  
-- 🌟 Portfolio: [Your Portfolio](#)  
+- 💼 LinkedIn: www.linkedin.com/in/abrarkhann
+- 📧 Email: abrar0349khan@gmail.com
+- 🌟 Portfolio: (Coming soon!)
 
 ---
 
