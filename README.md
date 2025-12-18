@@ -16,7 +16,7 @@
 ## 🌐 Let's Connect  
 
 - 💼 LinkedIn: www.linkedin.com/in/abrarkhann
-- 📧 Email: abrar0349khan@gmail.com
+- 📧 Email: abrarkhan031027@gmail.com
 - 🌟 Portfolio: (Coming soon!)
 
 ---
